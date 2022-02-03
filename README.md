@@ -1,0 +1,2 @@
+# Projekt_plastyka
+cosxdpewnoeeee
