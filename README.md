@@ -5,3 +5,5 @@ Witamy Na stronie Klasy 7
 
 
 O klasie - Klasa 7c Składa sie z 18 osob i jest najlepsza w szkole!
+
+Osiągnięcia klasy : 
